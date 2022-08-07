@@ -43,3 +43,7 @@ defaults:
       path: "_notes/**/*.md"
     values:
       layout: "note"
+
+assets:
+   sources:
+     -_assets/fonts/fraunces

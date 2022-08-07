@@ -1,0 +1,8 @@
+---
+title:
+---
+Why is the feeling of being able to highlight, annotate, screenshot, archive, collect cathartic? Even if you're not sure you're going to be able to do something to it,, use it in some way. Of course, maybe you do not know that at the outset, or when the behavior is novel. But as far as the story goes, after years of being able to do that easily on our phone and other devices, look back on hindsight and you might just see the compulsive behavior. My partner is so far, the only person i know who doesn't quite care for that and isn't the subject of similar compulsions. 
+
+My guess is that it allows us the illusion of being able to manipulate -- do anything -- to the subject that has caught our attention and become emmeshed with ideas and concepts and narratives -- things that i want to write about, knowledge that could be useful in the future, things i want to remember, moment to think back on re. times with the family, this really resonates and i want to have a place for it etc etc you get the drift.
+
+The discomfort and uncanny thing about digital objects and the digital platforms and cabinets and shelves where we store them is how easily they can be subjected to change, rearrangement, obsoletion, disappearance even. When a serve crashes somewhere, the shelf is gone. When a bug happens, the shelf is changed. When something you hooked it up with becomes incompatible, the shelf becomes unreachable. 

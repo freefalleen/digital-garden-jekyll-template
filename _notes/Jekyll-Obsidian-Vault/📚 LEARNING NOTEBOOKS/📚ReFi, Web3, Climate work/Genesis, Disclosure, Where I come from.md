@@ -1,0 +1,5 @@
+I was first interested in farming, natural farming. Came to know regenerative farming. 
+
+I came to understand how broken the economic system was. Not by studying economic analysis papers and reports, no, afterall that is not my strength. I was and still am, more interested in flourishing, human flourishing and healthy ecosystems. To me, they are one and the same thing, they inter-are. How do I picture human flourishing? How do i picture healthy ecosystems. 
+
+My interest in Alternative economies for a number of years always pointed me to conversations about reframing, about impact investment projects, about the gift economy. The same thinking, brought me to the world of distributed ledgers. I was introduced to Holochain, but not first without an introduction to blockchain, the more prominent one. 

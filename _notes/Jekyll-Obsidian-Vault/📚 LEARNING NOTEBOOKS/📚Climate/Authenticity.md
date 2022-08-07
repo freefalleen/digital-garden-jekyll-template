@@ -1,0 +1,5 @@
+##### Authenticity and the Commons
+[here](http://www.bollier.org/authenticity-and-commons)
+Much of this disaffection stems from an intuition that meaning and purpose in market contexts are so ephemeral, insubstantial or phony, and that the commons offers a way of life and production paradigm that is more “real” and meaningful.  It is precisely the in-your-face ubiquity of the market that has impelled so many people to seek refuge in modes of personal and community engagement that bypass market norms and assert more enduring personal ideals.  Hence the interest in free software, free culture, re-localization projects, slow food, community-supported agriculture, and so on.
+
+What is it about the market that makes us so convinced that something more authentic and pure lies just beyond the next ridge or around the next corner, or outside of the market entirely?  I think a lot has to do with the market premise that everything has a price and that the price system can conjure _anything_ out of nothingness.

@@ -1,0 +1,2 @@
+https://twitter.com/LouDelBello/status/1531950877065756673
+> I am increasingly hearing from freelancers struggling to place climate stories with international outlets because "Where is the solution?" and "Our readers are tired of the doom and gloom".
